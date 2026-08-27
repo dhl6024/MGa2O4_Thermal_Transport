@@ -1,0 +1,1 @@
+# MGa2O4_Thermal_Transport
